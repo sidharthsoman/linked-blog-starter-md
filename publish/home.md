@@ -22,6 +22,7 @@ Click the link above to find out how to publish your own notes!
 Here is an example of how I [forked this repo](https://github.com/fleetingnotes/fleeting-notes-website) to create a landing page for [Fleeting Notes](https://www.fleetingnotes.app/).
 
 Hello world!
+Check hello world again!
 
 ![[fn-website-demo.gif]]
 
