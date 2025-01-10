@@ -11,7 +11,7 @@ Welcome to **Learn the Ramayan through blogs**, your one-stop resource for explo
 ## What We Offer
 
 ### 📚 **Ramayana Texts**
-This site is home to comprehensive blog posts on various chapters of the Ramayana. Each blog delves into key events, characters, and lessons from the epic. Explore the fascinating story of **Rama** and **Sita**, their journey, triumphs, and the moral and philosophical lessons embedded in the text.
+This site is home to comprehensive blog posts on various chapters of the Ramayana. Each blog delves into key events, characters, and lessons from the epic. Explore the fascinating story of **Rama** and **Sita**, their journey, triumphs, and the moral and philosophical lessons embedded in this text.
 
 ### 🧠 **Interactive Quizzes**
 Not only will you read and learn, but you can also test your knowledge of the Ramayana! After exploring the chapters, you can challenge yourself with quizzes that cover the key elements, characters, and events of the story. It's a fun way to reinforce what you've learned and track your progress.
