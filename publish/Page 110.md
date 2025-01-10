@@ -1,0 +1,3 @@
+[[Ravana]] had lost all his loved ones in the battle. The rakshasa army was in deep trouble. Burning with anger and grief at the death of his beloved son [[Indrajit]], [[Ravana]] decided to kill [[Sita]]. He drew his sword and went to [[Sita]]'s hut. In that moment of crisis, the wise minister [[Suparshwa]] intervened.
+
+He advised [[Ravana]] not to kill [[Sita]], as it would be a sin and would bring shame upon him. He suggested that [[Ravana]] wait until the next day, [[Amavasya]], when his powers would be at their peak, and then fight [[Rama]] and the Vanara army. [[Ravana]] agreed and put his sword away.

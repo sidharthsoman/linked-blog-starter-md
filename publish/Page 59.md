@@ -1,0 +1,3 @@
+All the Vanara warriors assembled in [[Kishkindha]]. [[Sugriva]] commanded that anyone who did not arrive back with news within ten days would be sentenced to death. They were divided into four teams and sent in four directions to search for [[Sita]]. [[Angada]], [[Nala]], [[Nila]], [[Jambavanta]], [[Gavaya]], [[Gavaksha]], [[Mainda]], [[Dwivida]] and many more Vanara warriors were selected for the special task.
+
+But [[Rama]] had some hope in [[Hanuman]]. He had immense faith that [[Hanuman]] would succeed. [[Rama]] called [[Hanuman]] close and placed his signet ring, engraved with his name, in [[Hanuman]]'s hands, saying "Show this ring to [[Sita]] when you find her". [[Hanuman]] was proud of the trust [[Rama]] had placed in him.

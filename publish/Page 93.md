@@ -1,0 +1,3 @@
+With the peace efforts having failed, the only thing left was war. Soldiers from both sides gathered like mountains. They brandished and sharpened their weapons, rushed forward, and killed their enemies, building a mountain of corpses.
+
+While the demon army had weapons like clubs, spears, and swords, the Vanaras used whatever they could find - trees, stones, and boulders. The sky rained arrows! [[Rama]] killed [[Aniketu]] and [[Durdharsha]]. [[Lakshmana]] killed [[Virupaksha]].

@@ -1,0 +1,3 @@
+[[Vibhishana]], who knew about [[Indrajit]]'s magical skills, came to [[Rama]] and told him the truth. He said that [[Indrajit]] was performing a powerful yajna to increase his strength and that he had gone to [[Nikumbhila]] temple to complete the yajna. He said that the yajna had to be stopped before it was completed, and that [[Lakshmana]] should do this task.
+
+With [[Rama]]'s permission, [[Lakshmana]] went to the [[Nikumbhila]] temple. [[Indrajit]], enraged that his yajna had been interrupted, came out and fought with [[Lakshmana]]. The battle lasted for three days and three nights. Finally, [[Lakshmana]] remembered [[Rama]] and used the powerful [[Aindrastra]]. The astra cut off [[Indrajit]]'s head and sent it flying.

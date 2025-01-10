@@ -1,0 +1,3 @@
+Enraged by the Vanara's mischief, half tired, half irritated, and boiling with rage, [[Kumbhakarna]] re-entered the battlefield. He grabbed Vanaras in his hands and stuffed them into his mouth. Some Vanaras came out of his ears, and some came out of his nostrils.
+
+Others poked out of the gaps in his armor. Vanara heroes from the neighboring hills leaped onto [[Kumbhakarna]]'s body. Because of the Vanaras clinging all over him, he looked like a mountain range covered in hundreds of trees.

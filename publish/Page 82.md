@@ -1,0 +1,3 @@
+[[Vibhishana]] informed [[Rama]] about the details of the important people in [[Ravana]]'s army. After understanding all the strengths and weaknesses of [[Ravana]]'s army, [[Rama]] said, "Friend! I will destroy all of [[Ravana]]'s evil army and make you the king of [[Lanka]]. I will not leave for [[Ayodhya]] without finishing the task. This is [[Rama]]'s word. We need more peacekeepers like you.
+
+[[Ravana]] committed the crime of kidnapping [[Sita]] and I will punish him no matter what. We will hold the coronation right now." Abhisheka was done to [[Vibhishana]] with the water from the sea before [[Rama]], with [[Lakshmana]] leading the way, and crowned him king.

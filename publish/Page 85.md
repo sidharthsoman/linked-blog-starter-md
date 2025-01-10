@@ -1,0 +1,3 @@
+The work of building the bridge began. The Vanaras brought large trees and boulders and dumped them into the sea. They leveled the uneven parts and made it flat. They laid grass on the top layer to make it easier to walk.
+
+On the first day, fourteen yojanas, the second day, twenty yojanas, the third day, twenty-one yojanas, the fourth day, twenty-two yojanas, the fifth day, twenty-three yojanas, a bridge of one hundred yojanas in length and ten yojanas in width was built.

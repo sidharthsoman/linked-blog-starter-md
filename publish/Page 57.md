@@ -1,0 +1,3 @@
+[[Vali]], the brave warrior, fell dead. [[Tara]], his wife fell upon his body and wept. "Who will protect me and [[Angada]] now?" she cried. [[Rama]] comforted her saying, "[[Angada]] will become the prince. No one can escape destiny, and a brave woman does not grieve." [[Tara]]'s sorrow subsided upon hearing [[Rama]]'s words.
+
+[[Sugriva]] felt guilty. [[Lakshmana]] consoled him. [[Sugriva]] performed the last rites for [[Vali]] according to custom, with [[Angada]] by his side. [[Angada]] took his father's dead body by a chariot to the [[Pampa]] River. All the Vanaras were present there and the final rites were performed.

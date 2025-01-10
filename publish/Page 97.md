@@ -1,0 +1,3 @@
+[[Ravana]] was furious upon hearing the news of [[Rama]] and [[Lakshmana]] being alive. The strength of the vanara army had increased exponentially. They climbed on the chariots, they threw away the flags and broke the wheels. They even uprooted huge trees and barricaded the chariots with them.
+
+They teased ministers of [[Ravana]]'s army by wearing their crowns and laughing at them. He sent the mighty [[Dhumraksha]], who rained arrows on the Vanara army. But [[Hanuman]] lifted a large boulder with ease and spun it around, crushing [[Dhumraksha]] under it. The Vanaras were relieved.

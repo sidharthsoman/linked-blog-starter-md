@@ -1,0 +1,1 @@
+They moved ahead and reached Sage [[Agastya]]'s ashram which was on the banks of the [[Godavari]] river. [[Agastya]] welcomed them and gave them a bow made by [[Vishwakarma]], [[Brahmastra]], two inexhaustible quivers and a divine sword. He suggested that the area around [[Panchavati]] on the banks of the [[Godavari]] River would be suitable for their stay.

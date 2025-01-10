@@ -1,0 +1,3 @@
+[[Rama]], [[Lakshmana]], and [[Sita]] climbed onto the chariot and were preparing themselves to live in the forest by changing into simple clothes. [[Sumantra]] drove the chariot. The people of [[Ayodhya]] were celebrating the previous day. Today they were submerged in an ocean of shock. There was anger everywhere. The citizens followed the chariot as it moved forward. So did the royal retinue.
+
+"We will accompany you to the forest. We don't want to live in a city where [[Rama]] is not there," they said. None of this commotion seemed to affect [[Rama]]. His face still had the same calmness and seriousness. He promised them that he would return as soon as the exile was completed.

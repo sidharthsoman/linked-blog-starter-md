@@ -1,0 +1,1 @@
+his ashram was on the banks of [[Tamasa]] River

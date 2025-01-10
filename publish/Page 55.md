@@ -1,0 +1,3 @@
+A few days ago in [[Rishyamukha]], [[Sugriva]] and others witnessed a strange incident. A wicked man was flying through the sky, carrying away a young woman. She was screaming and struggling, calling out "[[Rama]], [[Lakshmana]]". It was clear that it was an abduction.
+
+Seeing them from below, the woman tied her ornaments in her cloth and threw them down. When [[Guha]] brought back the bundle of ornaments that had been carefully kept inside the cave and showed them to [[Rama]], he was heartbroken. He cried, his throat choked with sobs, his eyes blurred.

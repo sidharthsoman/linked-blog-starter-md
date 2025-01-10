@@ -1,0 +1,3 @@
+[[Kishkindha]] was the kingdom of Vanaras. [[Vali]] was the king. [[Sugriva]], on [[Rama]]'s advice, went to [[Kishkindha]] and challenged [[Vali]] to a duel. Both fought fiercely. The earth shook and sent boulders flying. They seemed evenly matched, neither gaining the upper hand.
+
+Since both looked alike, [[Rama]] had tied a necklace around [[Sugriva]]'s neck to distinguish him. [[Rama]] who was hiding in a nearby cave, waited for the right moment to intervene. When the fight reached its peak, [[Rama]] shot an arrow from his bow. The arrow pierced [[Vali]]'s chest, mortally wounding him.

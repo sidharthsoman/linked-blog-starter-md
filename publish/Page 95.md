@@ -1,0 +1,3 @@
+[[Ravana]] announced [[Rama]] and [[Lakshmana]] were dead in [[Lanka]]. [[Sita]] was taken in [[Pushpaka]] Vimana to the battlefield and shown [[Rama]] and [[Lakshmana]] lying unconscious. She was overwhelmed with grief. Then [[Trijata]], who was there to guard her, filled her with courage with her words, "[[Sita]], don't lose courage."
+
+"Look at the faces of those brave men lying on the ground. How radiant they are even in their unconsciousness. If they were really dead, [[Pushpaka]] wouldn't be carrying you. They are both alive. [[Rama]]'s victory is definite." Saying so, she filled [[Sita]] with strength. [[Pushpaka]] then flew back to [[Ashoka]] vana.

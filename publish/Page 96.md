@@ -1,0 +1,3 @@
+When the influence of [[Maya]] astra faded, [[Rama]] woke up. Seeing [[Lakshmana]] lying dead in a pool of blood, [[Rama]] thought he was dead and cried. "Why should I live when my beloved brother is dead?" he grieved, and prepared to take his own life. Then the wind blew as if a fierce storm had arisen, creating an illusion. [[Garuda]], the king of birds, arrived there.
+
+As he flew down, all the snakes that had bound [[Rama]] and [[Lakshmana]] fled in all directions. [[Garuda]], the son of [[Vinata]], also known as [[Vainateya]], gently touched [[Rama]] and [[Lakshmana]]'s bodies with his wings. All the wounds were healed and their bodies were rejuvenated. [[Garuda]] bowed down to [[Rama]] and circled him before disappearing into the sky.

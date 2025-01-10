@@ -1,0 +1,7 @@
+One by one, the warriors from [[Ravana]]'s palace came out. [[Vajradamshtra]] came after [[Dhumraksha]] had fallen. He was killed by [[Angada]]. Then [[Akampana]] fought all night. [[Hanuman]] was covered by the arrows that [[Akampana]] shot at him. Enraged, [[Hanuman]] jumped and roared. He uprooted a large tree and threw it at [[Akampana]], crushing him.
+
+Seeing all their warriors being killed by the Vanaras, the Rakshasa army trembled with fear. Their throats dried up and spines shivered. [[Ravana]]'s wife, [[Mandodari]] fell to his feet and said, "Oh king, please surrender. [[Rama]] and [[Lakshmana]] are not simple humans. Do not play with fire. Please return [[Sita]] Mata to [[Rama]]." The begging fell on deaf ears.
+
+One by one, the warriors from [[Ravana]]'s palace came out. [[Vajradamshtra]] came after [[Dhumraksha]] had fallen. He was killed by [[Angada]]. Then [[Akampana]] fought all night. [[Hanuman]] was covered by the arrows that [[Akampana]] shot at him. Enraged, [[Hanuman]] jumped and roared. He uprooted a large tree and threw it at [[Akampana]], crushing him.
+
+Seeing all their warriors being killed by the Vanaras, the Rakshasa army trembled with fear. Their throats dried up and spines shivered. [[Ravana]]'s wife, [[Mandodari]] fell to his feet and said, "Oh king, please surrender. [[Rama]] and [[Lakshmana]] are not simple humans. Do not play with fire. Please return [[Sita]] Mata to [[Rama]]." The begging fell on deaf ears.

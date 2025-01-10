@@ -1,30 +1,39 @@
 ---
-title: "An Extendable Obsidian Publish alternative using Next.JS"
-excerpt: "Create your own template or use someone else's. Changing the template is a matter of updating one line"
+title: "Learn the Ramayan through blogs."
 ---
-Publish your Obsidian Notes with a highly customizable Next.JS blog starter template. Features:
-- Supports most Obsidian syntax (e.g. Link Previews,  Links, etc.). Uses [obsidian-export](https://github.com/zoni/obsidian-export).
-- URLs are based on folder structure
-- Backlinks can be added outside of the markdown files (using the [PreviewLink](https://github.com/matthewwong525/linked-blog-starter/blob/main/components/misc/preview-link.tsx) component)
-- Full-text search
 
-## [[how-linked-blog-starter-works|How it works]]
-![[how-linked-blog-starter-works]]
+# Welcome to the Ramayana Repository
 
-## Getting Started
-### [[home|Demo]]
-Additionally, you can deploy the example using [Vercel](https://vercel.com/new/git/external?repository-url=https://github.com/matthewwong525/linked-blog-starter&project-name=linked-blog-starter&repository-name=linked-blog-starter) or preview live with [StackBlitz](https://stackblitz.com/github/matthewwong525/linked-blog-starter)
+Welcome to **Learn the Ramayan through blogs**, your one-stop resource for exploring the ancient epic, the Ramayana. This site is dedicated to providing you with in-depth texts, interpretations, and insights into this revered Hindu scripture. Whether you're a first-time reader or a seasoned scholar, you'll find valuable content to deepen your understanding of the Ramayana.
 
-### [[publish-your-obsidian-notes-with-linked-blog-starter|Publish your Obsidian Vault]]
-Click the link above to find out how to publish your own notes!
+---
 
-### [[deploy-a-custom-linked-blog-starter|Customize this template]]
-Here is an example of how I [forked this repo](https://github.com/fleetingnotes/fleeting-notes-website) to create a landing page for [Fleeting Notes](https://www.fleetingnotes.app/).
+## What We Offer
 
-Hello world!
-Check hello world again!
-Check it one last time!
+### 📚 **Ramayana Texts**
+This site is home to comprehensive blog posts on various chapters of the Ramayana. Each blog delves into key events, characters, and lessons from the epic. Explore the fascinating story of **Rama** and **Sita**, their journey, triumphs, and the moral and philosophical lessons embedded in the text.
 
-![[fn-website-demo.gif]]
+### 🧠 **Interactive Quizzes**
+Not only will you read and learn, but you can also test your knowledge of the Ramayana! After exploring the chapters, you can challenge yourself with quizzes that cover the key elements, characters, and events of the story. It's a fun way to reinforce what you've learned and track your progress.
 
+---
 
+## How It Works
+
+1. **Browse the Blog**: Dive into the various chapters and blog posts available.
+2. **Learn**: Read through the detailed explanations and interpretations of the texts.
+3. **Quiz Yourself**: At the end of each blog post, take a quiz to test your knowledge of the Ramayana.
+
+---
+
+## Get Started
+
+Whether you're here to deepen your knowledge or just to explore the story of the Ramayana, this site is for you. Start by reading our first chapter, and get ready to quiz yourself!
+
+---
+
+> "The Ramayana is not just an ancient epic; it is a timeless guide to life, wisdom, and righteousness."
+
+---
+
+### **Happy Learning!**

@@ -1,0 +1,3 @@
+[[Hanuman]] took his real form and said, "[[Rama]], I am the main advisor to Vanara chief [[Sugriva]]. He is in trouble. His elder brother [[Vali]] has banished him from [[Kishkinda]] and has abducted his wife too. We are living in [[Rishyamukha]] mountains in exile. [[Sugriva]] is humble, trustworthy and honest.
+
+He will definitely help you if you develop friendship with him. Our problems are similar in nature. Please follow me. [[Sugriva]] can be a big help in your search for [[Sita]] Mata." He then carried them on his shoulders and took them to [[Sugriva]].

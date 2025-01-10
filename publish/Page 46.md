@@ -1,0 +1,3 @@
+Seeing this sight, [[Jatayu]] immediately chased [[Ravana]]'s chariot. He destroyed [[Ravana]]'s bow and arrow, his crown, and the flagstaff. A fierce battle ensued in the sky. But how could [[Jatayu]]'s righteous strength stand up to [[Ravana]]'s demonical power? His strength waned. His body grew weary.
+
+[[Ravana]]'s sword severed [[Jatayu]]'s vast wings and legs. The weakened king of birds finally fell from the sky to the earth. Roaring in pain, [[Sita]] raised a ruckus. Gagging her, [[Ravana]] seized her by the neck and flew swiftly towards [[Lanka]] in his aerial chariot.

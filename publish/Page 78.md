@@ -1,0 +1,3 @@
+Then [[Hanuman]], having seen every corner of [[Lanka]] and made up his mind, finally loosened his grip and soared into the sky. He spread the fire that had been set to his tail and started a firestorm in all the houses of [[Lanka]].
+
+The fire engulfed the entire city, burning it to ashes. With the satisfaction of having burned down [[Lanka]], [[Hanuman]] finally dipped his tail in the sea and extinguished the fire.

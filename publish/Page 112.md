@@ -1,0 +1,3 @@
+After [[Ravana]] returned, the two fought fiercely in a way the world had never seen before. [[Rama]] used the [[Vishasarpa]] astra many times to cut off [[Ravana]]'s head, but every time, it grew back. When [[Matali]] suggested that [[Rama]] use the [[Brahmastra]], [[Rama]] did so. [[Ravana]] was terrified of the power of the [[Brahmastra]].
+
+The weapon pierced [[Ravana]]'s chest, came out of his back, and then returned to [[Rama]]'s quiver. As [[Ravana]]'s body fell to the ground, the storm that had been raging across the earth until then stopped, and an eerie calm descended upon the surroundings.

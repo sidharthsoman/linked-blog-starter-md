@@ -1,0 +1,3 @@
+After entering the city, [[Hanuman]] wandered through all the streets searching for [[Sita]]. He went inside the palace and saw the gigantic [[Ravana]] sleeping, snoring like thunder. He thought [[Mandodari]], who was sleeping beside him, might be [[Sita]], but then he dismissed the idea. From there, he went to the [[Ashoka]] Grove and sat on the tip of the [[Simsapa]] tree, observing his surroundings.
+
+Near the tree was a building, and in front of it sat a woman wearing a dirty cloth, crying. He wondered if she was [[Sita]]. Around her were strange creatures with one ear, a nose on their forehead, drooping tongues, and cracked lips making harsh cries, and creating chaos.

@@ -1,0 +1,3 @@
+[[Hanuman]] used anything that he could find as a weapon. He was not getting tired since he was constantly chanting [[Rama]]'s name. [[Jambumali]], [[Virupaksha]], and [[Yupaksha]], among other demons, came and were defeated by [[Hanuman]]. His fists were his strongest weapons and he punched his way through the army. Unable to resolve the issue, [[Ravana]] sent his son [[Akshakumara]].
+
+[[Hanuman]] broke him as if he were made of a twig and killed him. With no other alternatives left, he sent another son, [[Indrajit]], who was an expert in magic. Using the [[Brahmastra]], he controlled [[Hanuman]]'s power and dragged him to [[Ravana]]'s court. [[Hanuman]] was stunned to see the aura of [[Ravana]].

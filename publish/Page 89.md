@@ -1,0 +1,1 @@
+Among those assigned to guard [[Sita]], [[Sarama]] had compassion for [[Sita]]. She told [[Sita]] about [[Ravana]]'s cunning tricks and said, "[[Rama]] is the noblest of men. It is impossible for the demons to kill him. Be calm. Do not lose courage. [[Ravana]] will be defeated and [[Rama]] will win." She spoke words of hope and instilled confidence in [[Sita]].

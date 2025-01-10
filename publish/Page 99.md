@@ -1,0 +1,1 @@
+Next came [[Prahasta]], the chief minister of [[Ravana]], to the battlefield. The Vanara army easily defeated the other Rakshasa warriors who came with him. [[Prahasta]] fought valiantly against [[Nila]], the Vanara leader. Finally, [[Nila]] lifted a large hill and dropped it on [[Prahasta]]'s head, killing him instantly.

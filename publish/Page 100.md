@@ -1,0 +1,3 @@
+Thus all the brave warriors who were sent by [[Ravana]] perished on the battlefield. [[Ravana]] had no choice but fight himself. He entered the battlefield with [[Atikaya]], [[Mahodara]], [[Pishaca]], [[Trishira]], [[Kumbha]], [[Nikumbha]], [[Narantaka]], [[Devantaka]] and other warriors.
+
+[[Rama]] was momentarily stunned by [[Ravana]]'s radiant form. He admired [[Ravana]]'s strength and brilliance before engaging in battle. [[Rama]]'s arrows caused trouble to [[Ravana]]. [[Sugriva]], [[Hanuman]], and [[Lakshmana]] proved ineffective against [[Ravana]]'s valor.

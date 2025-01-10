@@ -1,0 +1,3 @@
+[[Kumbhakarna]]'s sons, [[Kumbha]] and [[Nikumbha]], were killed by [[Sugriva]] and [[Hanuman]], respectively. [[Makaraksha]], the son of [[Khara]], was killed by [[Rama]]. [[Indrajit]] then performed another magical yajna to increase his evil powers and entered the battlefield. He created an illusion of [[Sita]] and took her away.
+
+He made sure they were visible to the Vanara army and then slit [[Sita]]'s throat. The vanara army was heartbroken and confused. Thinking that [[Sita]] had really been killed, [[Hanuman]] ran to [[Rama]] and [[Lakshmana]] and told them what had happened. [[Rama]] was devastated and his grief knew no bounds.
